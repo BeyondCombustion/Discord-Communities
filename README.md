@@ -1,1 +1,1 @@
-# KnownDiscords
+# Known Discords
