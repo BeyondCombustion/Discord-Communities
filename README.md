@@ -1,5 +1,5 @@
-# Known Discords
+# Cannabis Discord Communities
 
-Cannabis vape related discords 
+Discord communites for dry herb cannabis vapes (and dabs)
 
 [/r/vaporents Discord](https://discord.gg/DNyeZHfjqg)
