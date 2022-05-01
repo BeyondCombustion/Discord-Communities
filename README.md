@@ -1,4 +1,4 @@
-# Cannabis Discord Communities
+# Dry Herb Vape Discord Communities
 
 #### [Go here if you'd like to add your community, or add another community to the list.](https://github.com/Vaporents/How-To-Contribute)
 
