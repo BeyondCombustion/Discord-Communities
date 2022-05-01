@@ -15,3 +15,6 @@ All communities are assumed to be for adults 18+ unless otherwise noted.
 [waxpens Discord](https://discord.gg/JPzZ4U6SrC)
 
 [DivineTribeVaporizers Discord](https://discord.gg/ZSqg2HYPTY)
+
+
+#### Click [here to view the other repos in the Vaporents GitHub OpenSource Project](https://github.com/Vaporents?tab=repositories)
