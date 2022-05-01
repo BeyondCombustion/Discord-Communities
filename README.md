@@ -1,10 +1,10 @@
 # Cannabis Discord Communities
 
-[Go here if you'd like to add your community, or add another community to the list.](https://github.com/Vaporents/How-To-Contribute)
+#### [Go here if you'd like to add your community, or add another community to the list.](https://github.com/Vaporents/How-To-Contribute)
 
-Discord communites for dry herb cannabis vapes (and dabs)
+## Discord communites for dry herb cannabis vapes (and dabs)
 
-All communities are assumed to be for adults 18+ unless otherwise noted.
+### All communities are assumed to be for adults 18+ unless otherwise noted.
 
 [/r/vaporents Discord](https://discord.gg/DNyeZHfjqg)
 
