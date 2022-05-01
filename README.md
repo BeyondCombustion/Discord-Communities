@@ -17,4 +17,4 @@
 [DivineTribeVaporizers Discord](https://discord.gg/ZSqg2HYPTY)
 
 
-#### Click [here to view the other repos in the Vaporents GitHub OpenSource Project](https://github.com/Vaporents?tab=repositories)
+#### Click [here to view all Vaporents GitHub repositories](https://github.com/Vaporents?tab=repositories)
