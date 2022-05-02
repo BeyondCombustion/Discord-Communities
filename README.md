@@ -4,7 +4,7 @@
 
 ## Discord communites for dry herb vapes (and dabs)
 
-### All communities are assumed to be for adults 18+ unless otherwise noted.
+### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
 [/r/vaporents Discord](https://discord.gg/DNyeZHfjqg)
 
