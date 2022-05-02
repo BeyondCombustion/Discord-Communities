@@ -1,8 +1,8 @@
 # Dry Herb Vape Discord Communities
 
-#### [Go here if you'd like to add your community, or add another community to the list.](https://github.com/Vaporents/How-To-Contribute)
+#### [Go here if you'd like to add your community, or add another community to the list.](https://github.com/BeyondCombustion/How-To-Contribute)
 
-## Discord communites for dry herb cannabis vapes (and dabs)
+## Discord communites for dry herb vapes (and dabs)
 
 ### All communities are assumed to be for adults 18+ unless otherwise noted.
 
@@ -17,4 +17,4 @@
 [DivineTribeVaporizers Discord](https://discord.gg/ZSqg2HYPTY)
 
 
-#### Click [here to view all Vaporents GitHub repositories](https://github.com/Vaporents?tab=repositories)
+#### Click [here to view all BeyondCombustion GitHub repositories](https://github.com/BeyondCombustion?tab=repositories)
