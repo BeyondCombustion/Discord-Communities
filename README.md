@@ -8,6 +8,8 @@
 
 [/r/vaporents Discord](https://discord.gg/DNyeZHfjqg)
 
+[VGoodiEZ Discord](https://discord.gg/UETxShF9sr)
+
 [Puffcord Discord](https://discord.gg/3RkZJUjehe) (21+ only)
 
 [Rosin Discord](https://discord.gg/mfvSG6w3Pa)
