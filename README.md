@@ -6,7 +6,7 @@
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
-[/r/vaporents Discord](https://discord.gg/DNyeZHfjqg)
+[New vaporents Discord](https://discord.gg/DNyeZHfjqg)
 
 [VGoodiEZ Discord](https://discord.gg/UETxShF9sr) (Adults 21+)
 
