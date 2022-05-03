@@ -6,21 +6,23 @@
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
-[New vaporents Discord](https://discord.gg/DNyeZHfjqg)
-
-[VGoodiEZ Discord](https://discord.gg/UETxShF9sr) (Adults 21+)
-
 [Cream City Vapes Discord](https://discord.gg/R83RxCZf3z)
 
-[Puffcord Discord](https://discord.gg/3RkZJUjehe) (Adults 21+)
+[DivineTribeVaporizers Discord](https://discord.gg/ZSqg2HYPTY)
+
+[New vaporents Discord](https://discord.gg/DNyeZHfjqg)
 
 [Official Puffco Discord](https://discord.gg/cdd7WpugHm) (Adults 21+)
 
+[Puffcord Discord](https://discord.gg/3RkZJUjehe) (Adults 21+)
+
+[Puffitup Discord](https://discord.gg/24Xxxmcbdg) (Adults 21+)
+
 [Rosin Discord](https://discord.gg/mfvSG6w3Pa)
 
-[waxpens Discord](https://discord.gg/JPzZ4U6SrC)
+[VGoodiEZ Discord](https://discord.gg/UETxShF9sr) (Adults 21+)
 
-[DivineTribeVaporizers Discord](https://discord.gg/ZSqg2HYPTY)
+[waxpens Discord](https://discord.gg/JPzZ4U6SrC)
 
 
 #### Click [here to view all BeyondCombustion GitHub repositories](https://github.com/BeyondCombustion?tab=repositories)
