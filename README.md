@@ -10,6 +10,8 @@
 
 [VGoodiEZ Discord](https://discord.gg/UETxShF9sr) (Adults 21+)
 
+[Cream City Vapes Discord](https://discord.gg/R83RxCZf3z)
+
 [Puffcord Discord](https://discord.gg/3RkZJUjehe) (Adults 21+)
 
 [Rosin Discord](https://discord.gg/mfvSG6w3Pa)
