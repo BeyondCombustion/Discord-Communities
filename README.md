@@ -14,6 +14,8 @@
 
 [Puffcord Discord](https://discord.gg/3RkZJUjehe) (Adults 21+)
 
+[Official Puffco Discord](https://discord.gg/cdd7WpugHm) (Adults 21+)
+
 [Rosin Discord](https://discord.gg/mfvSG6w3Pa)
 
 [waxpens Discord](https://discord.gg/JPzZ4U6SrC)
