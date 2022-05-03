@@ -1,6 +1,6 @@
 # Dry Herb Vape Discord Communities
 
-####[Click here for info on how you can contribute to BeyondCombustion.net](https://github.com/BeyondCombustion/How-To-Contribute/blob/main/README.md)
+#### [Click here for info on how you can contribute to BeyondCombustion.net](https://github.com/BeyondCombustion/How-To-Contribute/blob/main/README.md)
 
 ## Discord communites for dry herb vapes (and dabs)
 
