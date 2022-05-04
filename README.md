@@ -6,6 +6,8 @@
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
+[Cannabis Hardware Discord](https://discord.gg/ny96pxTfDA) (Adults 21+)
+
 [Cream City Vapes Discord](https://discord.gg/R83RxCZf3z)
 
 [/r/Dabbers Discord](https://discord.gg/7BsD3BG6uK)
