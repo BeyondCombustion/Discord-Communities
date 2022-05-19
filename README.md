@@ -14,6 +14,8 @@
 
 [DivineTribe Vaporizers](https://discord.gg/ZSqg2HYPTY)
 
+[Entexchange](https://discord.gg/FKMDNZjfYc)
+
 [New vaporents](https://discord.gg/DNyeZHfjqg) (Adults 21+)
 
 [Official Puffco community](https://discord.gg/cdd7WpugHm) (Adults 21+)
@@ -23,6 +25,8 @@
 [Puffitup Discord community](https://discord.gg/24Xxxmcbdg) (Adults 21+)
 
 [Rosin Discord](https://discord.gg/mfvSG6w3Pa)
+
+[Vapefiends](https://discord.gg/XEsmBFnkKJ) (UK based)
 
 [VGoodiEZ](https://discord.gg/UETxShF9sr) (Adults 21+)
 
