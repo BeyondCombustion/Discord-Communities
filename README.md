@@ -6,6 +6,8 @@
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
+[420EDC](https://discord.gg/5VaUXryz)  (Adults 21+)
+
 [Cannabis Hardware](https://discord.gg/ny96pxTfDA) (Adults 21+)
 
 [Cream City Vapes](https://discord.gg/R83RxCZf3z)
