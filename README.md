@@ -1,8 +1,5 @@
-# Dry Herb Vape Discord Communities
 
 #### [Click here for info on how you can contribute to BeyondCombustion.net](https://github.com/BeyondCombustion/How-To-Contribute/blob/main/README.md)
-
-## Discord communites for dry herb vapes (and dabs)
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
@@ -36,7 +33,7 @@
 
 ## Navigation
 
-### [Return to BeyondCombustion.net](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
+### [Return to BeyondCombustion.net](https://www.beyondcombustion.net/)
 
 ### [Jump to 'The Book' and The 'List'](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
 
