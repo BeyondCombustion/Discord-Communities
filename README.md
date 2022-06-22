@@ -38,7 +38,7 @@
 
 ### [Return to BeyondCombustion.net](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
 
-### [Jump to The 'Book' and The 'List'](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
+### [Jump to 'The Book' and The 'List'](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
 
 ### [Review the Glossary](https://BeyondCombustion.net/Glossery/)
 
