@@ -3,7 +3,9 @@
 
 [Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
 
-### All communities are assumed to be for adults at least 18+ unless otherwise noted.
+---
+
+# All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
 [420EDC](https://discord.gg/5VaUXryz)  (Adults 21+)
 
