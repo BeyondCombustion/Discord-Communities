@@ -1,5 +1,7 @@
 
-#### [Click here for info on how you can contribute to BeyondCombustion.net](https://github.com/BeyondCombustion/How-To-Contribute/blob/main/README.md)
+#### Want to contribute to BeyondCombustion?
+
+[Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
 
 ### All communities are assumed to be for adults at least 18+ unless otherwise noted.
 
