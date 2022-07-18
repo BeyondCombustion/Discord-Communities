@@ -19,6 +19,8 @@
 
 [Entexchange](https://discord.gg/FKMDNZjfYc)
 
+[Joe King's Crown](https://discord.gg/Eq4WRQCRNg) - Joe King's Customs
+
 [New vaporents](https://discord.gg/DNyeZHfjqg) (Adults 21+)
 
 [Official Puffco community](https://discord.gg/cdd7WpugHm) (Adults 21+)
