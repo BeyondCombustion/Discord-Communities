@@ -21,6 +21,8 @@
 
 [Joe King's Crown](https://discord.gg/Eq4WRQCRNg) - Joe King's Customs
 
+[Midlife Stoners](https://discord.gg/gB7wmZQFVF) (Adults 30+)
+
 [New vaporents](https://discord.gg/DNyeZHfjqg) (Adults 21+)
 
 [Official Puffco community](https://discord.gg/cdd7WpugHm) (Adults 21+)
